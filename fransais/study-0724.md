@@ -247,24 +247,17 @@
 ## 24.7.18
 
 1. Il ne tarit pas d’éloges sur la jeune employée. He’s full of praise for the new employee.
+2. ![B1 09 theme](lesson36-vocabulaire-10.jpg)
+3. ![B1 09 theme](lesson36-vocabulaire-11.jpg)
+4. le rentrée des classes est le 1er septembre 
+5. première séance dans une salle de cinéma 
+   1. séance : 一场，一次
+6. ces résultats montrent une hausse du taux de fréquentation des salles de cinéma 
+   1. hausse : augmentation 
+7. les résultats annoncés portent sur l'ensemble de l'année 
 
 
 
-Il est plus intelligent que tu ne le penses 
-
-Tu dois utiliser tous les temps libre pour appendre la Français au lieu de t'amuser tout le temps 
-
-Elle aura nous téléphoné quant elle arrivera à Paris 
-
-Avez-vous conscience que'il faut bien protéger l'environement 
-
-il faut informer le public du danger de ce médicament 
-
-Notre professeur est drôle, il fait rire tout les étudiants dans la classe 
-
-A quoi sert ce médicament, il paut servir à calmer la toux 
-
-chaque salle est équipée d'un ordinateur et d'un climatiseur 
 
 
 
