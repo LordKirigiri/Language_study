@@ -347,8 +347,21 @@
 14. the rump of Aquitaine 
 15. a miscellaneous assortment of books 
 
+---
 
+## 24.7.20 
 
-12345678
-
-12345678
+1. a New York property speculator 
+2. Eland had flouted his duties on 19 October 1330 and left unlocked the postern gate 
+3. Police handcuffed him and hauled him off to jail 
+4. overrule the King and spread his tentacles into every aspect of government business 
+5. The doctor advised Ken to avoid strenuous exercise 
+6. May the King remind us of the physical strength and comeliness of his father 
+7. congress refused to enact the bill 
+8. Edward's will had been overridden by Mortimer
+9. a hastily arranged new conference 
+10. Here are you travel documents, all duly signed 
+11. an unconvincing explanation 
+12. Edward was coddled like a child by his rapacious parent and her lover 
+13. by the spring of 1330, Edward could be nannied(nanny) no more 
+14. 
