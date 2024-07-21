@@ -365,3 +365,30 @@
 12. Edward was coddled like a child by his rapacious parent and her lover 
 13. by the spring of 1330, Edward could be nannied(nanny) no more 
 14. 
+
+---
+
+## 24.7.21
+
+1. The trees were starting to shed their leaves 
+   1. fall off of a natural process 
+2. shed blood : to kill or injure 
+   1. Too much blood has already been shed in this conflict 
+3. a sumptuous palace 
+4. Edward's personal knack for charming the ladies of the court and strike up(build a friendship with) with the man 
+5. Intuition told her it was unwise to argue 
+6. pelican
+7. falcon
+8. deep-set eyes and a flat brow 
+9. Edward was an exceptional horseman and a redoubtable warrior 
+10. The photograph shows him cavorting with two young women 
+11. Edward was lauded throughout his land 
+12. Edward steeped out from the cramping grasp of his parents and Mortimer 
+13. The driver was clearly intoxicated 
+    1.  OPP: sober 
+14. As the King's mother she was simply removed from the power and pensioned off(retire)
+15. The pool had several water chutes 
+16. He was tried(try, to examine and judge a legal case, often passive in this case ) for attempting to murder his wife 
+17. Eland and Montagu must have prayed that their plot would not have been foiled 
+18. an attempt to subvert the democratic process 
+19. unbeknown to him, his wife had been trying to phone him all morning 

@@ -255,9 +255,18 @@
 6. ces résultats montrent une hausse du taux de fréquentation des salles de cinéma 
    1. hausse : augmentation 
 7. les résultats annoncés portent sur l'ensemble de l'année 
+   1. porter sur : 落在
 
 
+---
 
+## 24.7.20 
+
+1. ![B1 09 theme](lesson36-vocabulaire-12.jpg)
+2. ![B1 09 theme](lesson36-vocabulaire-13.jpg)
+2. ![B1 09 theme](lesson37-vocabulaire-1.jpg)
+2. ![B1 09 theme](lesson37-vocabulaire-2.jpg)
+3. 
 
 
 
