@@ -392,3 +392,6 @@
 17. Eland and Montagu must have prayed that their plot would not have been foiled 
 18. an attempt to subvert the democratic process 
 19. unbeknown to him, his wife had been trying to phone him all morning 
+
+
+1. the granularity is defined by the implementation 

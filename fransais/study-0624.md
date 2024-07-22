@@ -434,7 +434,7 @@
 
 ---
 
-## 24.6.18 - 1 
+## 24.6.18 - 2 
  
 1. ![B1 09 theme](lesson23-vocabulaire-9.jpg)
 2. Imaginez de quel type de manifestation(activity) il s'agit et quel est son objectif
@@ -454,7 +454,7 @@
 
 ---
 
-## 24.6.19 - 1
+## 24.6.19 - 2
 
 1. Je était **subjugée** par l'intelligence de ce garçon
    1. subjuguer = to captivate 
