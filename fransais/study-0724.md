@@ -266,8 +266,22 @@
 2. ![B1 09 theme](lesson36-vocabulaire-13.jpg)
 2. ![B1 09 theme](lesson37-vocabulaire-1.jpg)
 2. ![B1 09 theme](lesson37-vocabulaire-2.jpg)
-3. 
 
+---
+
+## 24.7.21 
+
+
+1. ![B1 09 theme](lesson37-vocabulaire-3.jpg)
+2. elle ne pleure pratiquement jamais 
+   1. pratiquement : in fact 
+   2. pratiquement, à cause des embouteillages, il faut trois heures pour y aller 
+1. ![B1 09 theme](lesson37-vocabulaire-4.jpg)
+1. ![B1 09 theme](lesson37-vocabulaire-5.jpg)
+2. On m'a prévenu de faire attention aux pickpockets dans le métro
+   1. prévenir : remind 
+3. il m'a appris qu'il partiait vivre à l'étranger 
+1. ![B1 09 theme](lesson37-vocabulaire-6.jpg)
 
 
 0:02 Elsa Kopf - Larmes de caramel

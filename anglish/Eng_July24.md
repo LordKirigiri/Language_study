@@ -394,4 +394,36 @@
 19. unbeknown to him, his wife had been trying to phone him all morning 
 
 
-1. the granularity is defined by the implementation 
+
+---
+
+## 24.7.22
+
+1. At my age, the walk into town is enough to invigorate me 
+2. Ben was grizzling about being tired 
+3. under the strain of endemic abuses of local power 
+4. murder their political enemies with impunity 
+5. He has been dogged by injury all season 
+6. the business has been beset with financial problems 
+7. the lusty cry of new-born baby 
+8. It's a wry joke 
+   1. bad but slightly amusing 
+9. It's the same idea in a different guise 
+10. He hoped to emulate the success of Wilder 
+    1.  imitate 
+11. The leopard - Edward I's pejorative nickname 
+12. a victory parade 
+13. Marty's staple excuses 
+    1.  used all the time 
+14. Vivien had made a conscious effort to be friendly 
+15. Edward III tried to imbue his own reign with good qualities 
+16. the revolution foreshadowed an entirely new social order 
+17. the granularity is defined by the implementation 
+
+
+12345678
+
+
+pass parameter from BIOS --> initialize IDT(interrupt descriptor table) --> function start_kernel( sched_init(), IRQ_init, time_init(), calibrate_delay, kernel_thread() --> /sbin/init )
+
+init has run levels, a configuration file named etc_init_tab, it will run the scripts under /etc/rcX/* , X is the run level 
