@@ -383,7 +383,7 @@
 
 ---
 
-## 24.6.16 - 1
+## 24.6.16 - 2
 
 1. the band will play as many venues as possible
 2. The rest of us adjourned to a nearby pub for some refreshments 
