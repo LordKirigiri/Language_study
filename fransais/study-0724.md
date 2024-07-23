@@ -284,6 +284,32 @@
 1. ![B1 09 theme](lesson37-vocabulaire-6.jpg)
 
 
+---
+
+## 24.7.22
+
+1. ![B1 09 theme](lesson37-vocabulaire-7.jpg)
+   1. la veille : the previous day 
+   2. le lendemain : the following day 
+2. La voiture ne démarre pas mais je ne comprends pas pourquoi 
+3. Qu'est-ce que tu faisais quand je suis arrivée ? 
+4. ![B1 09 theme](lesson37-vocabulaire-8.jpg)
+5. un monde à part 
+   1. à part : 特别的，特殊的， 分开的，单独的，除了
+   2. un homme à part 
+   3. occuper une palce à part 
+   4. À part lui, nous ne connaissons personne ici 
+6. un cimetière 
+4. ![B1 09 theme](lesson37-vocabulaire-9.jpg)
+7.  
+
+Elle est peureuse, une petite fourmi suffit de faire elle à pleurer 
+Hier il m'a prévenu que il avait vu cette film, mais il allait le voir à nouveau
+Il m'a dit que il me connaît, mais je ne me souviens pas de l'avoir vu
+
+
+
+
 0:02 Elsa Kopf - Larmes de caramel
 
 3:41 Andrea Lindsay - Les yeux de Marie

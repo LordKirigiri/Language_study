@@ -419,12 +419,7 @@
 15. Edward III tried to imbue his own reign with good qualities 
 16. the revolution foreshadowed an entirely new social order 
 17. the granularity is defined by the implementation 
-
-
-1. It is a thriving shopping centre for the people who live in the immediate area 
-
-12345678
-
+18. It is a thriving shopping centre for the people who live in the immediate area 
 
 pass parameter from BIOS --> initialize IDT(interrupt descriptor table) --> function start_kernel( sched_init(), IRQ_init, time_init(), calibrate_delay, kernel_thread() --> /sbin/init )
 
