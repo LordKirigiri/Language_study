@@ -421,6 +421,8 @@
 17. the granularity is defined by the implementation 
 
 
+1. It is a thriving shopping centre for the people who live in the immediate area 
+
 12345678
 
 
