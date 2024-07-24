@@ -317,12 +317,15 @@
 4. ![B1 09 theme](lesson37-vocabulaire-12.jpg)
 5. c'est difficile de se concentrer sur une œuvre 
 6. Le prix d'entrée reste élevé, ce qui entraîne une baisse de fréquentation 
+7. Elle est peureuse, une petite fourmi suffit de faire elle à pleurer 
+8. Hier il m'a prévenu que il avait vu cette film, mais il allait le voir à nouveau
+9. Il m'a dit que il me connaît, mais je ne me souviens pas de l'avoir vu
 
-Elle est peureuse, une petite fourmi suffit de faire elle à pleurer 
-Hier il m'a prévenu que il avait vu cette film, mais il allait le voir à nouveau
-Il m'a dit que il me connaît, mais je ne me souviens pas de l'avoir vu
+---
 
+## 24.7.24
 
+1. Il y a quelque chose chez la femme français 
 
 
 0:02 Elsa Kopf - Larmes de caramel
