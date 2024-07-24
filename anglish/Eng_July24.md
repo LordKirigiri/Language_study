@@ -421,6 +421,32 @@
 17. the granularity is defined by the implementation 
 18. It is a thriving shopping centre for the people who live in the immediate area 
 
+
+---
+
+## 24.7.24
+
+1. Robert was offered generous sanctuary by Edward, who valued his knightly bumptiousness and military prowess 
+2. But in doing so, he roused the infernal ire of the French King and nobility 
+3. He heard the dog whimper 
+4. Dieting can be bad for you, not least because it is a cause of stress 
+5. the goading of an English King into a war he did not seek 
+6. Several innocent bystanders were killed by the blast 
+7. the penultimate chapter 
+8. church walls adorned with religious paintings 
+9. the seemingly intractable problem of human greed 
+10. Not only was Scotland perpetually turbulent 
+
+1 +60 
+2 +50
+3 +55 
+4 +30
+5 +70
+6 +75 
+7 +30 
+8 +75
+
+
 pass parameter from BIOS --> initialize IDT(interrupt descriptor table) --> function start_kernel( sched_init(), IRQ_init, time_init(), calibrate_delay, kernel_thread() --> /sbin/init )
 
 init has run levels, a configuration file named etc_init_tab, it will run the scripts under /etc/rcX/* , X is the run level 

@@ -301,7 +301,22 @@
    4. À part lui, nous ne connaissons personne ici 
 6. un cimetière 
 4. ![B1 09 theme](lesson37-vocabulaire-9.jpg)
-7.  
+
+---
+
+## 24.7.23 
+
+1. La plupart des expositions sont tellement ennuyeuses que plus personne n'a envie de les voir 
+2.  Le fait d'obliger les enfants à visiter ces musées entraîne inévitablement un rejet de leur part 
+    1.  rejet : 抛弃，排斥
+    2.  entraîner : 招致，引起
+4. ![B1 09 theme](lesson37-vocabulaire-10.jpg)
+4. ![B1 09 theme](lesson37-vocabulaire-11.jpg)
+5. Dites quelle réaction provoque sa remarque sur les musées 
+   1. remarque : 意见，观察
+4. ![B1 09 theme](lesson37-vocabulaire-12.jpg)
+5. c'est difficile de se concentrer sur une œuvre 
+6. Le prix d'entrée reste élevé, ce qui entraîne une baisse de fréquentation 
 
 Elle est peureuse, une petite fourmi suffit de faire elle à pleurer 
 Hier il m'a prévenu que il avait vu cette film, mais il allait le voir à nouveau
