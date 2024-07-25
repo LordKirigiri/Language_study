@@ -437,14 +437,22 @@
 9. the seemingly intractable problem of human greed 
 10. Not only was Scotland perpetually turbulent 
 
-1 +60 
-2 +50
-3 +55 
-4 +30
-5 +70
-6 +75 
-7 +30 
-8 +75
+---
+
+## 24.7.25
+
+1. Industrial progress is being shackled by a mass of regulations 
+2. stung(being hurt) by a harsh rebuke(reprimand)
+3. Can they dictate how the money will be spent ? 
+4. we watched the ocean churn 
+5. Granted, the music is not perfect 
+6. Lewis was annoyed that Adam did not show enough respect and deference to him 
+7. The diplomats renounced the English King's homage 
+8. 'that's hardly the point', he blustered 
+9. 
+
+
+
 
 
 pass parameter from BIOS --> initialize IDT(interrupt descriptor table) --> function start_kernel( sched_init(), IRQ_init, time_init(), calibrate_delay, kernel_thread() --> /sbin/init )

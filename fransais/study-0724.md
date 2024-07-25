@@ -317,6 +317,19 @@
 4. ![B1 09 theme](lesson37-vocabulaire-12.jpg)
 5. c'est difficile de se concentrer sur une œuvre 
 6. Le prix d'entrée reste élevé, ce qui entraîne une baisse de fréquentation 
+
+---
+
+## 24.7.24
+
+1. ![B1 09 theme](lesson37-vocabulaire-13.jpg)
+2. décrivez l'affiche 
+   1. describe 
+3. les actions mises en place pour rendre la culture accessible à tous 
+   1. mettre en place = réaliser = effectuer
+1. ![B1 09 theme](lesson37-vocabulaire-14.jpg)
+1. ![B1 09 theme](lesson37-vocabulaire-15.jpg)
+
 7. Elle est peureuse, une petite fourmi suffit de faire elle à pleurer 
 8. Hier il m'a prévenu que il avait vu cette film, mais il allait le voir à nouveau
 9. Il m'a dit que il me connaît, mais je ne me souviens pas de l'avoir vu
