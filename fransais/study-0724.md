@@ -336,9 +336,30 @@
 
 ---
 
-## 24.7.24
+## 24.7.25
 
 1. Il y a quelque chose chez la femme français 
+1. ![B1 09 theme](lesson37-vocabulaire-16.jpg)
+1. ![B1 09 theme](lesson37-vocabulaire-17.jpg)
+1. ![B1 09 theme](lesson37-vocabulaire-18.jpg)
+1. ![B1 09 theme](lesson37-vocabulaire-19.jpg)
+
+
+
+---
+## 24.7.25
+
+1. ![B1 09 theme](lesson37-vocabulaire-20.jpg)
+2. À qui est cette magazine dstiné 
+3. qulle est sa périodicté 
+4. les thèmes abordés (涉及)
+   1. J'ai très peu de temps, si bien que j'aborderai seulement deux sujets 
+5. initiation (启蒙)
+   1. Le joujou(toy) est la première initiation de l'enfant à l'art 
+6. initier
+   1. initier(传授) qn aux secrets d'une affaire 
+   2. s'initier à qqcn (learn by oneself)
+1. ![B1 09 theme](lesson37-vocabulaire-21.jpg)
 
 
 0:02 Elsa Kopf - Larmes de caramel

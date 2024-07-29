@@ -451,7 +451,69 @@
 8. 'that's hardly the point', he blustered 
 9. 
 
+---
 
+## 24.7.26
+
+1. the captain put into a wharf by the Tower of London 
+2. Brazil thrashed Italy 5-0
+3. His war with France was floundering 
+4. plummeting wages
+5. copper is a very conductive metal 
+6. Some international observers have claimed the election was rigged 
+7. Royal jewels stood as collateral against the loans 
+8. the trap closed round her leg, badly mangling her ankle 
+9. water gushed from the broken pipe
+10. Judges are meting out harsh sentences for car theft 
+11. first, you'll have to ram the posts into the ground 
+
+---
+
+## 24.7.27
+
+1. The company overreached itself financially 
+2. He ws scared of incurring his father's wrath 
+3. Liz was indignant at the way her child had been treated 
+4. The king upgraded his disparagement of the archbishop and accused him of treason 
+5. 'You're a fool', she chastised herself 
+6. root out corruption 
+7. provide a full audit of their recent transactions 
+8. He was gratified by Lucy's response 
+9. there has been a resurgence of interest in religion over the last ten years 
+10. Many people are in arrears with their rent 
+
+---
+
+## 24.7.28
+
+1. an exorbitant price, amount of money etc, is much higher than it should be 
+2. Edward was beginning to countenance a full turning-back of the clock 
+3. the communists were finally ousted from power 
+4. He's very bullish about the company's future 
+5. we stood there crying and hugging each other 
+6. the onerous nature of his financial demands 
+7. officials fear that extremists may resort to violence 
+8. their romance just fizzled out 
+9. Edward III vowed, in the sort of bombastic fashion that would have suited Henry II 
+10. we had a grandstand view of the fireworks(焰火表演) from our house
+11.  momentous events are taking place in the US 
+
+---
+
+## 24.7.29
+
+1. Her grandmother is elderly and infirm
+2. He hoped to emulate the success of Wilder
+3. 'That's your problem!' bellowed Hurley
+4. She was almost demented with grief
+5. The French cavalry, saw the crossbowmen in front of them falter, took their faltering for cowardice 
+6. THere's a real rumpus going on upstairs 
+7. Nurses soon become inured to the sight of suffering
+8. I found myself floundering as I tried to answer her questions
+9. The French army marched to the allotted battleground
+10. People are being forced to forage for food and fuel
+11. The French army was belatedly moved into a position to defend against the invasion 
+12. the nation lamented the death of its great war leader 
 
 
 
