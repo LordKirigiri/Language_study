@@ -416,7 +416,7 @@
 ---
 
 
-## 24.6.17 -1 
+## 24.6.17 - 1 
 
 1. The whole idea sounds absolutely preposterous 
    1. absurd
@@ -428,7 +428,7 @@
 6. The Sicilian project stemmed from the confluence of two of Henry's obsessions
 7. at large
 8. who should have been a propitious judge became a terrible enemy
-9. Alfred beat his children for even the smallest misdemeanour
+9. Alfred beat his children for even the smallest misdemeanor
 10. order the writ against his subject
 11. a tinge of sadness in her voice
 12. The government should be accountable for all the people of the country
