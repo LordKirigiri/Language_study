@@ -16,7 +16,7 @@
 1. ![B1 09 theme](lesson29-vocabulaire-6.jpg)
 2. Voici le bateau à bord duquel j'ai traversé le fleuve
 1. ![B1 09 theme](lesson29-vocabulaire-7.jpg)
-2. Demandez votre code de client privilégié grâce auquel vous pourrez bénéficier de traifs promotionnels tràs intéressants 
+2. Demandez votre code de client privilégié grâce auquel vous pourrez bénéficier de traifs promotionnels très intéressants 
 3. Ce site d'articles électroménagers dispose d'un service  après-vente
 4. Je commande tous mes billets d'avion aupràs de cette agence 
    1. commander : order
@@ -347,7 +347,7 @@
 
 
 ---
-## 24.7.25
+## 24.7.26
 
 1. ![B1 09 theme](lesson37-vocabulaire-20.jpg)
 2. À qui est cette magazine dstiné 
@@ -361,6 +361,13 @@
    2. s'initier à qqcn (learn by oneself)
 1. ![B1 09 theme](lesson37-vocabulaire-21.jpg)
 
+
+## 23.7.28
+
+0. Il était une fois : once upon a time 
+1. L'histoire des chefs-d'œuvre dévoilée 
+   0. dévoiler : reveal 
+2. Une énigme à résoudre(solve) et des numéros du Petit Léonrad à gagner 
 
 0:02 Elsa Kopf - Larmes de caramel
 

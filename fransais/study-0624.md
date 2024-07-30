@@ -662,12 +662,3 @@
 1. ![B1 09 theme](lesson29-vocabulaire-2.jpg)
    1. At the beginning it only concerned certain categories of Internet users
 1. ![B1 09 theme](lesson29-vocabulaire-3.jpg)
-
----
-
-## 24.7.28
-
-1. Il était une fois : once upon a time 
-2. L'histoire des chefs-d'œuvre dévoilée 
-   1. dévoiler : reveal 
-3. Une énigme à résoudre(solve) et des numéros du Petit Léonrad à gagner 

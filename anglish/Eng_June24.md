@@ -416,7 +416,7 @@
 ---
 
 
-## 24.6.17
+## 24.6.17 -1 
 
 1. The whole idea sounds absolutely preposterous 
    1. absurd
@@ -443,7 +443,7 @@
 
 ---
 
-## 24.6.18
+## 24.6.18 - 1 
 
 1. She was a tough girl with rather an abrasive manner
    1. rude and unkind 
@@ -454,9 +454,10 @@
 5. Henry III was presented with a **litany** of his failings 
    1. a long list of problems 
 6. Jane couldn't contain her amusement any longer
+   1. control feelings
 7. forefather = ancestor
 8. Julian's blunt words hurt her 
-9. The lusignans had broken loose of any pretence Henry gave to controlling them
+9.  The lusignans had broken loose of any pretence Henry gave to controlling them
    1.  the pretence that the old system could be made to work
 10. there was a **mutinous** look in Rosie's eyes 
 11. The lusignans were loathed 

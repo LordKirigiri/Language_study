@@ -2,7 +2,7 @@
 
 ---
 
-## 24.6.1 - 1
+## 24.7.1 - 1
 
 1. Edward's rigour in applying his royal rights in Scotland
 2. the whole of England, was called upon to come and protect the King from the perfidious French
@@ -515,6 +515,23 @@
 11. The French army was belatedly moved into a position to defend against the invasion 
 12. the nation lamented the death of its great war leader 
 
+---
+
+## 24.7.30 
+
+1. The Black Prince basked in his father's affections 
+2. Edward III paid close attention to the glamour of the spectacle 
+3. THe house is a surreal mixture of opulence and decay 
+4. French advances in Gascony were stemmed(stop something from happening, spreading...)
+5. She was granted clemency after killing her violent husband 
+6. 
+
+1 +30 
+2 +120
+3 +120
+4 +120
+5 +120
+6 +90
 
 
 pass parameter from BIOS --> initialize IDT(interrupt descriptor table) --> function start_kernel( sched_init(), IRQ_init, time_init(), calibrate_delay, kernel_thread() --> /sbin/init )
