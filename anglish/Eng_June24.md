@@ -465,10 +465,10 @@
 ---
 
 
-## 24.6.19
+## 24.6.19 - 1 
 
 1. You shouldn't deride their efforts 
-2. the army, thought their number were slight, comprised just a few hundred cavalry, accompanied by several times that number of foot soldiers and servants 
+2. the army, though their number were slight, comprised just a few hundred cavalry, accompanied by several times that number of foot soldiers and servants 
 3. protesters proclaimed that the girl was innocent
 4. take time to relax and commune with nature
 5. an immaculate kitchen 

@@ -369,6 +369,12 @@
    0. dévoiler : reveal 
 2. Une énigme à résoudre(solve) et des numéros du Petit Léonrad à gagner 
 
+---
+
+## 24.7.30
+
+1. ![B1 09 theme](victor_hugo.jpg)
+
 0:02 Elsa Kopf - Larmes de caramel
 
 3:41 Andrea Lindsay - Les yeux de Marie

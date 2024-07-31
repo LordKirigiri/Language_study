@@ -524,7 +524,7 @@
 3. THe house is a surreal mixture of opulence and decay 
 4. French advances in Gascony were stemmed(stop something from happening, spreading...)
 5. She was granted clemency after killing her violent husband 
-6. 
+6. the position of King became hereditary
 
 1 +30 
 2 +120
