@@ -526,14 +526,14 @@
 5. She was granted clemency after killing her violent husband 
 6. the position of King became hereditary
 
-1 +30 
-2 +120
-3 +120
-4 +120
-5 +120
-6 +90
+---
 
+## 24.7.31
 
-pass parameter from BIOS --> initialize IDT(interrupt descriptor table) --> function start_kernel( sched_init(), IRQ_init, time_init(), calibrate_delay, kernel_thread() --> /sbin/init )
+1. On 8 january 1959 de Gaulle was inaugurated as first president of the Fifth Republic 
+2. a great performance from a consummate actor 
+3. Kissinger was now chief steward of US foreign policy 
+4. a country in the throes of a profound economic crisis 
+5. The train gave a violent lurch 
+6. the scourge of war 
 
-init has run levels, a configuration file named etc_init_tab, it will run the scripts under /etc/rcX/* , X is the run level 

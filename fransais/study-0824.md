@@ -1,0 +1,46 @@
+
+---
+
+## 24.8.2 
+
+1. ![B1 09 theme](lesson37-vocabulaire-22.jpg) 
+2. ![B1 09 theme](lesson37-vocabulaire-23.jpg) 
+3. ![B1 09 theme](lesson37-vocabulaire-24.jpg) 
+4. ![B1 09 theme](lesson37-vocabulaire-25.jpg) 
+5. de quel type de campagne s'agit-il ?
+   1. campagne : 非商业广告
+6. une personne courtoise : adj 礼貌的
+   1. un geste courtois 
+7. courtoisie : n. 礼貌
+   1. leurs relations se bornent à la courtoisie 礼仪之交
+8. les européens les plus polis au volant 
+   1. au volant : 驾驶中
+9. ceux qui conduisent le plus mal 
+   1. apprendre à conduire 
+10. en revanche = au contraire 
+11. pas ... pour un sou : 一点也不
+   1. pas modestes pour un sous, les Français se jugent à 93 pourcent bons conducteurs 
+   2. il n'est pas méchant pour un sou 
+12. les informations qui contredisent l'opinion que les conducteurs français ont d'eux-mêmes 
+    1.  contredire : contradict 
+    2.  ses actes contredisent ses paroles 
+13. 
+
+---
+
+## 24.8.3
+
+1. Doubler ou tourner sans mettre le clignotant
+   1. clignotant: the light you turn on when swerving left or right 
+2. ![B1 09 theme](lesson41-vocabulaire-1.jpg) 
+2. ![B1 09 theme](lesson41-vocabulaire-2.jpg) 
+
+
+
+ce qui émueut les spectateurs, c'est la amour paternel dans ce film 
+
+cette visite a pour but de rendorcer l'amitié entre les deux pays 
+
+J'ai vu un film consacré à la présentation de la gastronomie française dans l'avion 
+
+Au travers de ces livres, J'ai obtenu connaissances plus prodondes sur cette ville 
