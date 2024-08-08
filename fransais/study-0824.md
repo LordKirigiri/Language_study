@@ -37,10 +37,44 @@
 
 
 
-ce qui émueut les spectateurs, c'est la amour paternel dans ce film 
+---
 
-cette visite a pour but de rendorcer l'amitié entre les deux pays 
+## 24.8.4
 
-J'ai vu un film consacré à la présentation de la gastronomie française dans l'avion 
+1. ![B1 09 theme](lesson41-vocabulaire-3.jpg) 
+1. ![B1 09 theme](lesson41-vocabulaire-4.jpg) 
+1. ![B1 09 theme](lesson41-vocabulaire-5.jpg) 
+1. ![B1 09 theme](lesson41-vocabulaire-6.jpg) 
 
-Au travers de ces livres, J'ai obtenu connaissances plus prodondes sur cette ville 
+---
+
+## 24.8.5
+
+1. ![B1 09 theme](lesson41-vocabulaire-7.jpg) 
+2. ![B1 09 theme](lesson41-vocabulaire-8.jpg) 
+2. ![B1 09 theme](lesson42-vocabulaire-1.jpg) 
+
+---
+
+## 24.8.6
+
+2. ![B1 09 theme](lesson42-vocabulaire-2.jpg) 
+2. ![B1 09 theme](lesson42-vocabulaire-3.jpg) 
+2. ![B1 09 theme](lesson42-vocabulaire-4.jpg) 
+
+---
+
+## 24.8.7
+
+2. ![B1 09 theme](lesson42-vocabulaire-5.jpg) 
+   1. accroître : increase 
+2. ![B1 09 theme](lesson42-vocabulaire-6.jpg) 
+2. ![B1 09 theme](lesson42-vocabulaire-7.jpg) 
+
+le début de ce film est médiocre, mais en revanche, le fin est beillante
+
+Les Français se jugent les plus remontiques du monde 
+
+Je croie que notre vie futur deviendra de plus en plus belle 
+
+ces dernières années, il reste toujours optimiste et modeste 

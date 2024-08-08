@@ -53,4 +53,63 @@
 6. the lamentable(令人惋惜的，失望的) spectacle of scattered smoking ruins to which they had been reduced by devouring flame 
 7. 
    
+---
+
+## 24.8.5
+
+1. Her hair is always perfectly groomed 
+2. By midsummer, both police and protesters were girding for confrontation 
+3. Scientists first conceived the idea of the atomic bomb in the 1930s 
+4. Edward began to put into place his own version of the grand familial strategy that Henry II had conceived for his own children
+5. despite the misfortunes and truculence of his daughters 
+6. NATO threatened drastic action if its terms were not met 
+8. the pernicious effects of poverty 
+
+---
+
+## 24.8.6
+
+1. War is one of the greatest impediments of human progress
+2. The mercenaries had been roaming the French countryside 
+3. the protracted war 
+4. Over time, Bertrand du Guesclin, the French general,  would become the scourge of the England 
+5. the crown was contested between two sons, one of which is bastard, of the Castilian King 
+6. a sumptuous feast 
+7. acidic water will corrode the pipes 
+8. Edward III took solace in the comforts of his wife's servant Alice Perrers 
+9. John of Gaunt was to be groomed for a role that would see him overseeing Scottish defense and affairs 
+
+---
+
+## 24.8.7
+
+1. war was the only response that Edward knew how to give against the onslaughts of Charles V
+2. the docks have outlived their usefulness 
+3. Queen philippa, by 1367, was relying on litter and barge to travel 
+4. the futility of the Black Prince's Castilian campaign
+5. an arduous task of loading all the boxes into the van 
+6. No one should flatter even the greatest prince to his face like that 
+7. a British film dubbed into French 
+8. The Franco-Castilian force was routed 
+9. there is no direct descent from the summit 
+10. the new born baby was seen as an auspicious way for his father to start on a campaigning season
+11. The residents are being asked to shoulder the costs of the repairs 
+
+---
+
+## 24.8.8
+
+1. He was seething with anger 
+2. The building exemplified the style of architecture which was popular at the time 
+3. mosquito-ridden swamps 
+4. the give succour to the victims of war 
+5. there was a growing sense that the assertive, charismatic kingship which had characterized Edward's regin was giving way to a power vacuum
+6. the dress was embroidered with flowers 
+7. the measures are meant to stem the tide of illegal immigration 
+8. call upon their king to correct this stricken realm 
+9. we piled the branches into heaps for burning 
+10. a munificent gift
+11. 
+
+
 
