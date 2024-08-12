@@ -71,10 +71,43 @@
 2. ![B1 09 theme](lesson42-vocabulaire-6.jpg) 
 2. ![B1 09 theme](lesson42-vocabulaire-7.jpg) 
 
-le début de ce film est médiocre, mais en revanche, le fin est beillante
+---
 
-Les Français se jugent les plus remontiques du monde 
+## 24.8.8
 
-Je croie que notre vie futur deviendra de plus en plus belle 
+2. ![B1 09 theme](lesson42-vocabulaire-8.jpg) 
+2. ![B1 09 theme](lesson42-vocabulaire-9.jpg) 
 
-ces dernières années, il reste toujours optimiste et modeste 
+---
+
+## 24.8.9
+
+2. ![B1 09 theme](lesson42-vocabulaire-10.jpg) 
+   1. vol : plane 
+   2. veille : the previous day 
+   3. animer : preside
+   4. annuler : cancel
+2. ![B1 09 theme](lesson42-vocabulaire-11.jpg) 
+
+---
+
+## 24.8.10
+
+1. Apportez-moi ce livre 
+2. apporter un élément nouveau à l'enquête 
+   1. 给一份调查提供新的要素
+
+---
+
+## 24.8.11
+
+2. ![B1 09 theme](lesson42-vocabulaire-12.jpg) 
+2. ![B1 09 theme](lesson42-vocabulaire-13.jpg) 
+
+Même si nous avons fait déjà de grand progrès, notre travail ne se termine pas pour autant 
+
+Tu a eu 14 sur 20 cet examen , is ressort que tu n'es pas stupide 
+
+La plupart des Français vont au bord de la mer ou à la compagne pour les vacances d'été
+
+Pour participer cet compétition, il a fait beaucoup d'efforts 

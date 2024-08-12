@@ -111,6 +111,53 @@
 10. a munificent gift
 11. 
 
+---
+
+## 24.8.9
+
+1. a morbid fascination with instruments of torture 
+2. she counselled them not to accept his settlement 
+3. a scientist of great eminence 
+4. the increasingly senile king 
+5. a lengthy report 
+6. many people are unable to articulate the unhappiness they feel
+7. He was seething with anger
+
+---
+
+## 24.8.10
+
+1. people clamoured in the street 
+2. the doctor's refusal to accede to his patient's request 
+3. Richard soaked up the adulation of the masses 
+4. Her foot was throbbing with pain 
+5. the doctor gave him a thorough check-up
+6. the King's prerogative alone 
+7. 'It was her', said Ruth, gibbering with  fear 
+8. a sumptuous feast 
 
 
-8. the 2024 Olympic game had just ended yesterday, I watched the games of ping-pang, and actually what impressed me most was the JP female team. Their team members are really cute, of medium height, seems a little bit shy, Like ... . And also, many of them had spent some time training in China, and some of them can even speak fluently in Chinese. They stared to make me think the relation between China and JP was not so bleak as the media reported. I hope one day I can find it myself what are these girls really like. 
+---
+
+## 24.8.11
+
+1. a doleful song about lost love 
+2. a life of debauchery 
+3. the dogs howled all night 
+4. denied their moment(opportunity) to parley with their adored monarch
+5. research that delved deeply into this issue 
+6. It's by no means a perfect arrangement, but necessity dictated 
+7. He tried to fudge the issue by saying that he did not want to specify periods 
+8. a pretense at seriousness 
+9. who could have perpetrated such a dreadful crime 
+
+---
+
+## 24.8.12
+
+1. John concocted an elaborate excuse for being late 
+2. The fat had slowly congealed in the pan 
+3. the role of birds in the dispersal of seeds 
+4. the dispersal of peasants' revolt 
+5. the taxes had provoked disgruntlement 
+6. 8. the 2024 Olympic game had just ended yesterday, I watched the games of ping-pang, and actually what impressed me most was the JP female team. Their team members are really cute, of medium height, seems a little bit shy, Like Ishikawa Kasumi, Miu HIRANO and HAYATA Hina. And also, many of them had spent some time training in China, and some of them can even speak fluently in Chinese. They stared to make me think the relation between China and JP was not so bleak as the media reported. I hope one day I can find it myself what are these girls really like. 
