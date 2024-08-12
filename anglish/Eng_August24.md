@@ -113,3 +113,4 @@
 
 
 
+8. the 2024 Olympic game had just ended yesterday, I watched the games of ping-pang, and actually what impressed me most was the JP female team. Their team members are really cute, of medium height, seems a little bit shy, Like ... . And also, many of them had spent some time training in China, and some of them can even speak fluently in Chinese. They stared to make me think the relation between China and JP was not so bleak as the media reported. I hope one day I can find it myself what are these girls really like. 
