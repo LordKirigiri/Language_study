@@ -104,10 +104,67 @@
 2. ![B1 09 theme](lesson42-vocabulaire-12.jpg) 
 2. ![B1 09 theme](lesson42-vocabulaire-13.jpg) 
 
-Même si nous avons fait déjà de grand progrès, notre travail ne se termine pas pour autant 
+---
 
-Tu a eu 14 sur 20 cet examen , is ressort que tu n'es pas stupide 
+## 24.8.12
 
-La plupart des Français vont au bord de la mer ou à la compagne pour les vacances d'été
+1. ![B1 09 theme](lesson42-vocabulaire-14.jpg) 
+1. ![B1 09 theme](lesson42-vocabulaire-15.jpg) 
+2. invite les lecteurs à passer son message à l'intéressé(相关的人)
+1. ![B1 09 theme](lesson42-vocabulaire-16.jpg) 
 
-Pour participer cet compétition, il a fait beaucoup d'efforts 
+---
+
+## 24.8.14
+
+
+1. ![B1 09 theme](lesson42-vocabulaire-17.jpg) 
+
+---
+
+## 24.8.15
+
+1. ![B1 09 theme](lesson44-vocabulaire-1.jpg) 
+1. ![B1 09 theme](lesson44-vocabulaire-2.jpg) 
+
+---
+
+## 24.8.16
+
+1. ![B1 09 theme](lesson44-vocabulaire-3.jpg) 
+1. ![B1 09 theme](lesson44-vocabulaire-4.jpg) 
+
+---
+
+## 24.8.18
+
+1. y compris les heures supplémentaires de l'ensemble des personnes en emploi à temps plein
+   1. "Including the overtime hours of all full-time employees." 
+2. ![B1 09 theme](lesson44-vocabulaire-5.jpg) 
+2. ![B1 09 theme](lesson44-vocabulaire-6.jpg) 
+
+---
+
+## 24.8.19
+
+1. ![B1 09 theme](lesson44-vocabulaire-7.jpg) 
+
+---
+
+## 24.8.20
+
+1. ![B1 09 theme](lesson44-vocabulaire-8.jpg) 
+
+
+Est-ce que tu peux me le prêter pendant deux jours 
+
+Je vous informe que la cérémonie de mariage de ma fille aura lieu à l'église la semaine prochaine 
+
+Tu peux me le demander si tu ne connais pas le numéro de téléphone de votre voison
+
+Il ne s'aperçois que maintenant, mais il est trop tard
+
+À l'en coire , les français savent comment jouir la vie 
+Il fume beaucoup, alors le médicient lui a conseillé de l'arrêter
+Il ne partage pas à cette idée, quant à moi, J'avais acune avis 
+Grâce à la décision du gouvernment, la quality de des habitants de ce village a beaucoup amélirée
