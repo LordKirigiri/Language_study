@@ -2,7 +2,7 @@
 
 ## Chapter 1 
 
-## 24.4.25-2
+## 24.4.25 - 2 
 
 1. **generic** drugs
 2. we don't have **a time of a month**
@@ -42,7 +42,7 @@
 
 ---
 
-## 24.4.26-2
+## 24.4.26 - 2
 
 1. the door was **cleft** into two
    1. **cleave**
@@ -103,7 +103,7 @@
 13. The last time I law Rachel she was **hobbling** around with a stick
 14. the Anglo-Saxon **Chronicle**
 15. The firm was accused of **dubious** accounting practices
-16. The aim of the association is to **perpetuate** the skills of traditional funiture design
+16. The aim of the association is to **perpetuate** the skills of traditional furniture design
 17. The historical evidence supporting this is **substantial**
 18. the five petals of the rose represent the five stations of female life--birth, **menstruation**, motherhood, **menopause** and death
 19. He was **huffing and puffing** by the time he got to the top
@@ -125,14 +125,14 @@
 6. Matcham's theatres were widely **disparaged** by architects
 7. The study **purportedly** found that men lived with smart women live longer 
 8. The weapons had been acquired by **stealth**
-9. Once the cockroadches get into a building, it's very difficult to **exterminate** them
+9. Once the cockroaches get into a building, it's very difficult to **exterminate** them
 10. It is thought that they worked **in collusion** with the terrorist network 
 11. the narrow street **reverberated** with the sound of the workmen's drills
-12. Martin broke his leg and has been on **cruthes** for the past six weeks 
-13. a shy women who **shuned** publicity
+12. Martin broke his leg and has been on **crutches** for the past six weeks 
+13. a shy women who **shunned** publicity
 14. Disney is also a **avid prankster**, like Leonardo da Vinci
 15. He spent 10 years **incarcerated**
-16. He's obviously got a lot of policital **savvy**
+16. He's obviously got a lot of political **savvy**
 17. this film pays **homage** to a famous director
 18. a **blatant** lie
 19. a little girl with a **perpetual** simle
@@ -141,24 +141,24 @@
 
 ---
 
-### 24.4.29-2
+### 24.4.29 - 3
 
 1. a **squeal** of brakes
-2. dont't **dawdle**, we are late already
+2. don't **dawdle**, we are late already
 3. could have been a **glancing blow**
 4. why he's **wearing so little**
 5. what was he like? **Prickly**
 6. the desperate **plight** of the flood victims 
 7. He **cosseted** her with flowers and champagne
 8. the **precincts** of the cathedral
-9. He **hobbled** into the room on **cruthes** 
+9. He **hobbled** into the room on **crutches** 
 10. **derisive** laughter
 11. The economy is showing sighs of **faltering**
 12. Remy **skulked** out like a banished dog
-    1.  a dark forless danger, **lurking** in the shadows
+    1.  a dark formless danger, **lurking** in the shadows
 13. I still can't **fathom** out what she meant
-14. Eighteen new junior ministers **were inducted into** the goverment 
-15. the group falls into chaos and **divulges** other information 
+14. Eighteen new junior ministers **were inducted into** the government
+15. the group falls into chaos and **divulges** other information
 16. the country's economic **predicament**
 17. the **premise** of the novel is that there are life on other planets
 18. an **enticing** treasure 
@@ -173,7 +173,7 @@
 
 ---
 
-## 24.4.30-2
+## 24.4.30 - 3
 
 1. He **crept** back up the stairs, trying to avoid the ones that creaked
 2. what are you doing here, it's **perishing**
@@ -191,7 +191,7 @@
 
 ---
 
-## 24.5.1-2
+## 24.5.1 - 3
 
 1. that's a grossly **impertinent** question
 2. He wore an **immaculate** dark blue suit
@@ -211,7 +211,7 @@
 16. think things through
 17. financial **incentives**
 
-## 24.5.2-2
+## 24.5.2 - 3
 
 1. John had become **infatuated with** the French Teacher
 2. an **oppressive** military regime 
@@ -234,7 +234,7 @@
 16. Jill **crammed** her clothes into the bag 
 17. **mash** the babanas
 18. Consumers **rail** against the way companies fix prices 
-19. The kidnappers were demanding a **ramson** of $250,000
+19. The kidnappers were demanding a **ransom** of $250,000
 20. the british **Isles**
 21. welt is the painful raised mark on one's skin, for example by hit
 22. Silas was struggling against his **trusses**
