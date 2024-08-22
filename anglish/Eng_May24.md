@@ -251,7 +251,7 @@
 
 ---
 
-## 24.5.3-2
+## 24.5.3 - 3
 
 1. you hate her **sparkly** outfit, don't you 
 2. his **rugged** good looks
@@ -261,7 +261,7 @@
 5. The plane **veered off**
    1. change direction
 6. I have good **vibes** about this boy
-7. I think you are more **masculine** than you **give yourself credite for**
+7. I think you are more **masculine** than you **give yourself credits for**
 8. rightnow, he's facing **treacherous** terrain
 9.  I think we might be **rushing into this**
 10. We'are not supposed to **fraternize** with the guests 
@@ -270,7 +270,7 @@
 13. shoppers will get a temporary **reprieve** from the new sales tax
 14. one of the defining **affliction** of urban life
 15. The nation **lamented** the death of its great war leader
-16. her conerns **resonate** today, as loneliness is considered has **beset** the elderly and yonung alike
+16. her concerns **resonate** today, as loneliness is considered has **beset** the elderly and young alike
 17. he collected storied of individuals who feel **cut off** or **forsake**
 18. An **octogenarian** **languishes** in a retirement home
 19. The author **evokes** the pain of **bereavement**
@@ -297,7 +297,7 @@
 ## 24.5.4-2
 
 1. you must admit you do **coddle** her 
-2. **squirrelly** kids
+2. **squarely** kids
 3. **I've been wanting** to move for a while
 4. She was always getting **put in detention**
 5. a **pushy** salesman
