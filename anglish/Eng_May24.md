@@ -294,7 +294,7 @@
 
 ---
 
-## 24.5.4-2
+## 24.5.4 - 3
 
 1. you must admit you do **coddle** her 
 2. **squarely** kids
@@ -309,17 +309,17 @@
 11. Ukraine has begun using **vintage propeller** driven planes 
 12. Gill had been out of work for a year and was getting very **despondent**
 13. a **lotion** that **repels** mosquitoes
-14. Drunken football fans **rampaged** throught the streets
+14. Drunken football fans **rampaged** throughout the streets
 15. under the new **regime**, all sheep and cattle will be regularly tested for disease
 16. a **low-key** military operation 
-17. Sophie has heard it **insofar** as its begin the brithplace of Nicene Creed
+17. Sophie has heard it **insofar** as its begin the birthplace of Nicene Creed
 18. He heard the dog **whimper**
 19. I have no idea what he was **babbling** on about
 20. All of a sudden, a car came **hurtling** round the corner
 21. Investigators were **stymied** by the uncooperative witnesses
 22. 'I simply loved your book', she **gushed**
 23. like many secret societies **at odds** with the church
-24. in slient prayer for **deliverance**
+24. in silent prayer for **deliverance**
 25. 'help!' she **croaked**, her throat dry with fear
 26. suddenly the engine **sputtered** and stopped
 27. she leant forward to **peruse** the document more closely
@@ -329,7 +329,7 @@
 31. Carol **slumped** back in her chair
 32. he **quivered** with excitement
 
-## 24.5.5-2
+## 24.5.5 - 3
 
 1. He could hear the old man **snoring**
 2. He lacks <mark>charisma</mark>
@@ -340,10 +340,10 @@
 7. **harp on me** about those things
 8. he made **profuse** apologies
 9. Vera was **doling** out candy to all the kids
-10. Sophie Neveu had **shunned** her grandfater
+10. Sophie Neuveu had **shunned** her grandfather
 11. The old man **shambled** out of the room **muttering** to himself
 12. Edward was hoping to **slink** past unnoticed
-    1. past tence and past priticiple: slunk
+    1. past tense and past participle: slunk
 13. The cockpit is where the drivers and pilot sit in a plane or car
 14. The firm is accused of **dubious** accounting practices
 15. a **charter** flight(包机)
@@ -356,9 +356,9 @@
 22. Sophie began to **recount** what happened that night
     1. formal version of tell
 23. the car was set **alight** and pushed over a hill
-24. you are so bold to **condone** **premartital** sex
+24. you are so bold to **condone** **premarital** sex
 25. what are you **chuckling** about?
-26. The <mark>gist</mark> of his arguement is that full employment is impossible
+26. The <mark>gist</mark> of his argument is that full employment is impossible
 27. Modern religion **decries** it as shameful
     1.  condemn
 28. The church claimed themselves as the the sole **conduit** to god
@@ -375,7 +375,7 @@
 
 ---
 
-## 24.5.6 - 2
+## 24.5.6 - 3
 
 1. it's an **obsession** with safety
 2. He **tore** off into town
@@ -391,8 +391,8 @@
    2. if a vehicle grinds to a halt, it stops gradually
 7. the whole idea sounds absolutely **preposterous**
    1. a **prosperous** landowner
-8. Maybe you should **tweak** a few sentences before you send in the report 
-9.  allocated a larger budget to technology
+8. Maybe you should **tweak** a few sentences before you send in the report
+9. allocated a larger budget to technology
 10. we had a really tight budget
 11. The money that was scammed is equivalent to two months' worth of salary.
 12. brag 吹嘘， talk too proudly about what you have done, (disapproval)
@@ -403,9 +403,9 @@
     3. boost, like bolster in meaning 2
        1. the win boosted the team's confidence
 13. rebut: 反驳 (formal) prove a charge against you is false (noun, rebuttal)
-    1.  refute, like rebut
-    2.  rebuke, like reprimand, critisize members of the jury were sharply **rebuked** for speaking to the press
-14. endow, 
+    1. refute, like rebut
+    2. rebuke, like reprimand, criticize members of the jury were sharply **rebuked** for speaking to the press
+14. endow
     1. give money to someone or some org as salary: teachers are endowed at the public expense
     2. be endowed with, to naturally have a good feature: she was endowed with good looks
 15. endorse, express support for someone
@@ -419,7 +419,7 @@
 20. Her stomach was in **knots**
 21. problems that **ensue** from food and medical shortages
 22. The women were scream in a **frenzy**
-23. His cheif rival for the job
+23. His chief rival for the job
 24. The question **baffled** me completely
 25. a **mop** and bucket
     1.  broom
@@ -436,7 +436,7 @@
 32. The top button **popped** off my shirt
 33. 
 
-## 24.5.7-2
+## 24.5.7 - 3 
 
 1. watching horror movie might **invite** nightmares
    1. encourage something bad to happen
@@ -445,7 +445,7 @@
 4. I love your **enthusiasm**
    1. enthusiast
    2. enthusiastic
-5. some nearby buildings **sustained** minor demage
+5. some nearby buildings **sustained** minor damage
 6. a **tenacious** negotiator
 7. the beauty of the garden was a pleasure to **behold**
    1. to see or look at something 
@@ -456,21 +456,21 @@
 12. The noise was **deafening**
 13. a **gaping** hangar door
 14. a **deceleration** in economic growth
-15. Sue has blonde **streaks** in her hair 
+15. Sue has blonde **streaks** in her hair
     1.  Two jets **streaked** across the sky
-16. the jet **coasted** calmly past the access lane 
+16. the jet **coasted** calmly past the access lane
     1.  move without effort or any power
 17. The phone was **wedged** under his chin
-    1.  force something firmly into a norrow space
-18. The employees **reaped** the benifits
-19. The colloar had started to **fray** on his coat. 
+    1.  force something firmly into a narrow space
+18. The employees **reaped** the benefits
+19. The collar had started to **fray** on his coat. 
     1.  the carpet was badly **frayed**
 20. a **penchant** for fast cars
 21. his most **lucrative** client
 22. The company still looks forward to find a buyer, but the future looks **bleak**
 23. we now have evidence to **corroborate** the defendant's story
 24. Patrick **scowled**, but did what he was told
-25. keep **abrest** of the latest developments in computers
+25. keep **abreast** of the latest developments in computers
 26. we made our way carefully along the **ridge**
 27. her **glossy** black hair
 28. a **recessed** bookshelf
@@ -485,7 +485,7 @@
 3. their work permits have been **revoked**
 4. two meals to go 
 5. she's a really dutiful daughter
-   1. he's a very dovoted son
+   1. he's a very devoted son
 6. I started **working out** (健身)
 7. America's **deteriorating** economy
    1. economist
@@ -500,7 +500,7 @@
 16. she isn't well enough to **receive** visitors yet
 17. It **exasperated** me to hear comments like that 
     1.  exacerbate: deteriorate 
-    2.  exaggarate:
+    2.  exaggerate:
 18. square with 
     1.  His story simply does not square with the facts 
 19. allegory is stories or paintings in which the events and characters represents ideas or teach a moral lesson
@@ -517,7 +517,7 @@
 30. The forests **abound with** deer, birds and squirrels
     1.  Examples of this **abound** in the book
 31. I've been **labouring** over this report all morning
-32. He was scared of **incuring** his father's wrath
+32. He was scared of **incurring** his father's wrath
 33. He was very **cagey** about the deal
 34. we all clambered **aboard** and the boat pulled out
 35. two motorcycles **peeled** off from the line
@@ -529,7 +529,7 @@
 
 ---
 
-## 24.5.9 -2
+## 24.5.9 - 3
 
 1. there was a **palpable** sense of relief among the crowd
 2. a job for which artistic **flair** is essential
@@ -606,11 +606,9 @@
 41. the doves cooed
 
 
-
-
 ---
 
-## 24.5.10-2
+## 24.5.10 - 3
 
 1. domestic/household appliance
    1. kitchen appliances
@@ -621,7 +619,7 @@
 6. I learned, like, five curse words
 7. The president must have the highest **ethical** standards
 8. You find your seat, which is on the aisle
-9. You **tug** at the laptop **wdeged** in your bag 
+9. You **tug** at the laptop **wedged** in your bag
 10. There was a **palpable** sense of relief among the crowd
 11. I dangled my feet in the clear blue water
 12. Chamberlain's policy of **appeasement** toward Hitler in the 30s
@@ -646,9 +644,9 @@
 6. Although Silas **sneered** outwardly at the threat
 7. He was sprinting across the outside courtyard with no plans of stopping until his legs gave out 
 8. When I heard how much money we've made, I was flabbergasted.
-9. Relative are tonight comforing the distraught parents 
-10. a trapezoid is a shape with four sides, none of which are of lequal length or of parallel
-11. The investigation was conducted maticulously 
+9. Relative are tonight comforting the distraught parents 
+10. a trapezoid is a shape with four sides, none of which are of equal length or of parallel
+11. The investigation was conducted meticulously 
 12. a stone pew encircled a bare expanse of floor 
 13. the desperate plight of the flood victims
 14. Sophine **registered** the gruff tone immediately
@@ -660,7 +658,7 @@
 20. The guilt rippled through him
 21. The contour of the hills
 22. **dangling** of the **contraption**
-23. a table **strewn** with electrionic parts 
+23. a table **strewn** with electronic parts 
 24. a **immaculately** clean loft
 25. nestled against the far wall sat an **elaborate** computer workstation 
 26. rungs are the bars that forms the steps of a ladder
