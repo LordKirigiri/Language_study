@@ -299,3 +299,187 @@
 8. the confession was obtained under duress
 9. Paolo knelt and bowed his head in supplication
 
+---
+
+## 24.8.21
+
+1. the debate about whether parents should smack their children
+2. the desire to laugh became a compulsion
+3. clad in finery equal to his rival's 
+4. the German pavilion at the World Trace Fair
+5. the society is not affiliated with any political party
+6. All color drained from her countenance
+7. He had no compunction about interfering in her private affairs
+8. I'm not surprised her family disowned her
+
+---
+
+## 24.8.22
+
+1. the confiscated Lancastrian inheritance were doled out to key Richardian supporters
+2. a community riven by religious differences
+3. In the final, we will meet his old nemesis
+4. They argued, but he remained obdurate
+   1. stubborn
+5. a modern building with no superfluous decoration
+6. there was a hint of lechery in his eyes
+7. most of the new nobility, professed their loyalty to him, that loyalty was paper-thin
+8. a withering look
+9. a sign of incipient madness
+10. Richard's behavior was at times psychopathic
+11. tenants have legal liability for any damage they cause
+
+---
+
+## 24.8.23
+
+1. the president's power is circumscribed by congress and the supreme court
+2. a doleful song about lost love
+3. this move sowed dissension within the party ranks
+4. a time of political strife
+5. internecine warfare/hatreds
+6. after the morning's good deeds, he deserved a rest
+7. a picture that is wonderfully evocative of a hot, summer's day
+8. a postmortem was ordered to try to ascertain the cause of death
+9. the practice of killing animals for food is utterly abhorrent to me
+10. the birds have deserted their nest
+11. the court acquitted Campbell on the grounds of temporary insanity
+12. unimpeded progress
+
+---
+
+## 24.8.24
+
+1. the path was concealed by long grass
+2. You seem to be under a misapprehension
+3. a disappointing speech that skirted around all the main issues
+4. the King was so variable and dissimulating in his words and writings
+5. He faced the ignominy of being exposed as a spy
+6. a tainted blood supply
+7. Peter, you are an incorrigible flirt
+8. Cork is very buoyant
+
+---
+
+## 24.8.25
+
+1. a torrid love affair
+2. she was spiteful and unkind, both to Isabel and her son
+3. she suffered a fractured skull in the accident
+4. the accession of James I
+5. a country ravaged by civil war
+6. women are entering the political arena in larger numbers
+7. the two themes are inextricably interwoven in the book
+8. the apotheosis of romantic art
+9. the seeds can be pulverized into flour
+10. the emperor saw an opportunity to endear himself to the Athenians
+11. she admitted that the interview had been a complete farce from start to finish
+12. defective products
+13. His father bequeathed him a fortune
+14. Pam arrived late, dishevelled and out of breath
+15. she stopped to wait for lan who was lagging behind
+16. the scourge of unemployment
+17. Jean concocted a great meal from the leftovers
+
+---
+
+## 24.8.26
+
+1. a heartless fiend
+2. Jill crammed her clothes into the bag
+3. policies which are throttling many Asian economies
+4. we groped around in the darkness
+5. we went to trieste, and thence by train to Prague
+6. the girl was thrashing about in the water
+7. He was publicly flogged and humiliated
+8. she evinced no surprise at seeing them together
+9. strange events that portend disaster
+10. Our troops were quartered in Boston until June
+11. 
+
+---
+
+## 24.8.27
+
+1. the beauty of the garden was a pleasure to behold
+2. He was discomfited by her silence
+   1. discomfiture
+3. He was gratified by Lucy's response
+4. the room had been thoroughly cleaned
+5. Wilson was claiming compensation for unfair dismissal
+6. Her family began to scour the countryside for a suitable house
+7. an insolent tone of voice
+8. 
+
+---
+
+## 24.8.28
+
+1. Britain's friends and foes
+2. the gold rims of his spectacles glinted in the sun
+3. Heathcliff's face brightened a moment, then was overcast afresh
+4. she greeted me with a look of cold reproof
+5. we always endeavor to please our customers
+6. He makes film about animals, plants and sundry other subjects
+7. kitchen utensils
+8. Her eyes sparkled with merriment
+9. Nelly made the house and kitchen cheerful with great fires, befitting Christmas-eve
+
+
+## 24.8.29
+
+1. I would **wink at**  his cheating Mr.Hindley that once 
+2. They listened with rapt attention
+3. I let the poor things converse unmolested
+4. Manufacturers are rubbing their hands with glee as they prepare to cash in
+5. Sewing is relaxation for some, purgatory for others
+6. The little party recovered its equanimity at the sight of the fragrant feast
+7. He consoled himself that he would see Kate again soon
+8. bountiful harvests
+9. a rough remedy to cool the fit of passion
+10. I don't like other people meddling in the way I run this prison
+11. Edgar ventured this remark without any intention to insult
+12. a dainty gold chain
+
+
+---
+
+## 24.8.30
+
+1. He flung the box into the river
+2. the consumption of alcohol on the premises is forbidden
+   1. business premises
+3. He frittered away a fortune on fast cars and gambling
+4. a service in remembrance of those killed in the war
+5. the whole tiresome business of filling out the forms
+6. The college acquired a reputation for very high standards
+7. the court discourages frivolous lawsuits
+8. He was the most obstinate man I've ever met
+9. gloomy prognostications
+10. she was well acquainted with classical literature
+
+---
+
+## 24.8.31
+
+1. unruly children
+2. she imposed unwittingly on the old lady and gentleman by her ingenious cordiality
+3. Jan looked pensive
+4. 'the man is a genius', marvelled Claire
+5. Bill sat in sullen silence and refused to eat his lunch
+6. I have an aversion to housework
+7. the dissipation of heat
+8. a hectoring tone of voice
+9. Jan has a vocation for teaching
+10. everyone doted on Sally, the only girl in the family
+11. she's always fretting about the children
+    1.  worry about something, especially when there's no need
+12. she began again to describe it rapturously
+13. 
+
+
+git mr, cherry-pick, submodule
+
+
+
+

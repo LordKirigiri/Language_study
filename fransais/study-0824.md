@@ -154,17 +154,76 @@
 ## 24.8.20
 
 1. ![B1 09 theme](lesson44-vocabulaire-8.jpg) 
+1. ![B1 09 theme](lesson44-vocabulaire-9.jpg) 
+
+---
+
+## 24.8.21
+
+1. ![B1 09 theme](lesson44-vocabulaire-10.jpg) 
+1. ![B1 09 theme](lesson44-vocabulaire-11.jpg) 
+1. ![B1 09 theme](lesson44-vocabulaire-12.jpg) 
 
 
-Est-ce que tu peux me le prêter pendant deux jours 
+---
 
-Je vous informe que la cérémonie de mariage de ma fille aura lieu à l'église la semaine prochaine 
+## 24.8.22
 
-Tu peux me le demander si tu ne connais pas le numéro de téléphone de votre voison
+1. ![B1 09 theme](lesson44-vocabulaire-13.jpg) 
+1. ![B1 09 theme](lesson44-vocabulaire-14.jpg) 
+1. ![B1 09 theme](lesson44-vocabulaire-15.jpg) 
 
-Il ne s'aperçois que maintenant, mais il est trop tard
+---
 
-À l'en coire , les français savent comment jouir la vie 
-Il fume beaucoup, alors le médicient lui a conseillé de l'arrêter
-Il ne partage pas à cette idée, quant à moi, J'avais acune avis 
-Grâce à la décision du gouvernment, la quality de des habitants de ce village a beaucoup amélirée
+## 24.8.25
+
+1. Aujourd'hui, j'ai une rêve très réal, il est envers ma anciene camarade, (en fait, elle était dans une autres classe, mais nous étions dans la même lycée). Dans la troisième anées de lycée, elle a décidé d'étudier dans une autre lycée parce que notre lycée n'était pas bien, mais ce que dans laquelle elle a envie d'étudier, c'est une lycée super dans notre ville. Et je suis un très triste pour ne pas plus pouvoir elle voir, j'ai même pleuré dans une classe pour lui. Alors je lui ai envoyé une lettre et des bonbon, mais elle ne m'a répondu pas. Et la rêve, j'ai lui rencontré à nouveau et elle me disait que son père pensait qu'elle devait me répondre et trouver que je suis un bon garçon alors elle peut essayer de se faire amie avec moi.(Je pense que c'est ce qu'elle pensait, son père n'est qu'une prétexte) Elle est même allé chez moi parce qu'elle m'a dit que son ordinateur avait des problèmes . J'ai essayé d'elle aider à réparer et améliorer son ordinateur.   
+2. Après, j'ai essayé d'elle convaincre de séjourner chez moi(J'ai vraiment envie de lui parler plus), et j'ai lui promis de ne pas faire des choses impropre, mais elle a insisté de rentrer chez lui même s'il est vraiment tard. Alors, je l'ai renvoyé chez lui, et je suis un peu surpris que elle habitait pas loin de moi. Je lui ai dit que je souhaitais que ce n'est pas la dernière fois que nous pouvions rencontrer.
+
+
+---
+
+## 24.8.26
+
+1. ![B1 09 theme](lesson45-vocabulaire-1.jpg) 
+1. ![B1 09 theme](lesson45-vocabulaire-3.jpg) 
+1. ![B1 09 theme](lesson45-vocabulaire-2.jpg) 
+
+---
+
+## 24.8.27
+
+1. ![B1 09 theme](lesson45-vocabulaire-4.jpg) 
+1. ![B1 09 theme](lesson45-vocabulaire-5.jpg) 
+2. D'après = selons
+
+---
+
+## 24.8.28
+
+1. ![B1 09 theme](lesson45-vocabulaire-6.jpg) 
+1. ![B1 09 theme](lesson45-vocabulaire-7.jpg) 
+1. ![B1 09 theme](lesson45-vocabulaire-8.jpg) 
+1. ![B1 09 theme](lesson45-vocabulaire-9.jpg) 
+
+---
+
+## 24.8.29
+
+1. Ce film a-t-il été retenu pour cette cérémonie?
+   1. retenir l'attention de qn 引起注意
+
+---
+
+## 24.8.30
+
+1. ![B1 09 theme](lesson45-vocabulaire-10.jpg) 
+1. ![B1 09 theme](lesson45-vocabulaire-11.jpg) 
+
+---
+
+## 24.9.2
+
+1. Il est compréhensible de ressentir de la déception et de la fatigue, surtout lorsque votre travail ne vous apporte pas de satisfaction.
+1. ![B1 09 theme](lesson45-vocabulaire-12.jpg) 
+1. ![B1 09 theme](lesson45-vocabulaire-13.jpg) 
