@@ -125,7 +125,7 @@
 ---
 
 
-## 24.6.5 - 2
+## 24.6.5 - 3
 
 1. Que signifie ce mot?
 2. ![B1 09 theme](lesson15-vocabulaire-11.jpg)
@@ -154,7 +154,7 @@
 
 ---
 
-## 24.6.6 - 2
+## 24.6.6 - 3
 
 1. lâcher oiseau 
    1. L'art de vivre se résume à savoir quand s'accrocher et quand lâcher prise(何时坚持，何时放弃)
@@ -175,7 +175,7 @@
 
 ---
 
-## 24.6.7 - 2
+## 24.6.7 - 3
 
 1. La date du mariage a été repoussée  
 2. ![B1 09 theme](lesson16-vocabulaire-5.jpg)
@@ -234,7 +234,7 @@
 ---
 
 
-## 24.6.9 - 2
+## 24.6.9 - 3
 
 1. Je me lave le visage, je mets de la crème, je me brosse les dents 
 2. Je me maquille(I make up )
@@ -264,7 +264,7 @@
 ---
 
 
-## 24.6.10 - 2
+## 24.6.10 - 3
 
 1. ![B1 09 theme](lesson17-vocabulaire-17.jpg)
 26. ![B1 09 theme](lesson17-vocabulaire-18.jpg)
@@ -291,7 +291,7 @@
 
 ---
 
-## 24.6.11 - 2
+## 24.6.11 - 3
 
 1. ![B1 09 theme](lesson19-vocabulaire-1.jpg)
 26. ![B1 09 theme](lesson19-vocabulaire-2.jpg)
@@ -334,7 +334,7 @@
 
 ---
 
-## 24.6.13 - 2
+## 24.6.13 - 3
 
 1. ![B1 09 theme](lesson20-vocabulaire-9.jpg)
 28. une émission intitulée 'Ils **en rêvaient**, is l'ont fait'
@@ -362,7 +362,7 @@
 
 ---
 
-## 24.6.14 - 2
+## 24.6.14 - 3
 
 1. ![B1 09 theme](lesson20-vocabulaire-15.jpg)
 31. ![B1 09 theme](lesson20-vocabulaire-16.jpg)
@@ -376,7 +376,7 @@
     
 ---
 
-## 24.6.15 - 2
+## 24.6.15 - 3
 
 1. ![B1 09 theme](lesson20-vocabulaire-23.jpg)
 1. ![B1 09 theme](lesson20-vocabulaire-24.jpg)
@@ -397,7 +397,7 @@
 
 ---
 
-## 24.6.16 - 2
+## 24.6.16 - 3
 
 1. quarante minutes de décalage 
    1. a forty minute gap  
@@ -416,7 +416,7 @@
 
 ---
 
-## 24.6.17 - 2 
+## 24.6.17 - 3
  
 1. ![B1 09 theme](lesson23-vocabulaire-5.jpg)
 1. ![B1 09 theme](lesson23-vocabulaire-6.jpg)
@@ -434,7 +434,7 @@
 
 ---
 
-## 24.6.18 - 2 
+## 24.6.18 - 3
  
 1. ![B1 09 theme](lesson23-vocabulaire-9.jpg)
 2. Imaginez de quel type de manifestation(activity) il s'agit et quel est son objectif
@@ -454,7 +454,7 @@
 
 ---
 
-## 24.6.19 - 2
+## 24.6.19 - 3
 
 1. Je était **subjugée** par l'intelligence de ce garçon
    1. subjuguer = to captivate 

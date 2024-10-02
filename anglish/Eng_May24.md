@@ -2,7 +2,7 @@
 
 ## Chapter 1 
 
-## 24.4.25-2
+## 24.4.25 - 3
 
 1. **generic** drugs
 2. we don't have **a time of a month**
@@ -42,7 +42,7 @@
 
 ---
 
-## 24.4.26-2
+## 24.4.26 - 3
 
 1. the door was **cleft** into two
    1. **cleave**
@@ -82,7 +82,7 @@
 
 ---
 
-## 24.4.27-2 
+## 24.4.27 - 3
 
 1. The stock market crash might lead to financial **meltdown** 
 2. we are going to **carpool** with you grandpa
@@ -115,7 +115,7 @@
 
 ---
 
-## 24.4.28-2
+## 24.4.28 - 3
 
 1. a **gourmet** cook 
 2. sent stela to a dog **groomer**
@@ -125,14 +125,15 @@
 6. Matcham's theatres were widely **disparaged** by architects
 7. The study **purportedly** found that men lived with smart women live longer 
 8. The weapons had been acquired by **stealth**
-9. Once the cockroadches get into a building, it's very difficult to **exterminate** them
+9. Once the cockroaches get into a building, it's very difficult to **exterminate** them
 10. It is thought that they worked **in collusion** with the terrorist network 
 11. the narrow street **reverberated** with the sound of the workmen's drills
-12. Martin broke his leg and has been on **cruthes** for the past six weeks 
-13. a shy women who **shuned** publicity
+12. Martin broke his leg and has been on **crutches** for the past six weeks 
+13. a shy women who **shunned** publicity
 14. Disney is also a **avid prankster**, like Leonardo da Vinci
+    1.  keen
 15. He spent 10 years **incarcerated**
-16. He's obviously got a lot of policital **savvy**
+16. He's obviously got a lot of political **savvy**
 17. this film pays **homage** to a famous director
 18. a **blatant** lie
 19. a little girl with a **perpetual** simle
@@ -141,21 +142,21 @@
 
 ---
 
-### 24.4.29-2
+### 24.4.29 - 3
 
 1. a **squeal** of brakes
-2. dont't **dawdle**, we are late already
+2. don't **dawdle**, we are late already
 3. could have been a **glancing blow**
 4. why he's **wearing so little**
 5. what was he like? **Prickly**
 6. the desperate **plight** of the flood victims 
 7. He **cosseted** her with flowers and champagne
 8. the **precincts** of the cathedral
-9. He **hobbled** into the room on **cruthes** 
+9. He **hobbled** into the room on **crutches** 
 10. **derisive** laughter
 11. The economy is showing sighs of **faltering**
 12. Remy **skulked** out like a banished dog
-    1.  a dark forless danger, **lurking** in the shadows
+    1.  a dark formless danger, **lurking** in the shadows
 13. I still can't **fathom** out what she meant
 14. Eighteen new junior ministers **were inducted into** the goverment 
 15. the group falls into chaos and **divulges** other information 
@@ -173,7 +174,7 @@
 
 ---
 
-## 24.4.30-2
+## 24.4.30 - 3
 
 1. He **crept** back up the stairs, trying to avoid the ones that creaked
 2. what are you doing here, it's **perishing**
@@ -184,14 +185,14 @@
 6. feeling like a **panther stalking prey**
 7. If we **posit** that wage rises cause inflation, it follows that we should try to minimize them
 8. There are lots of **sordid** apartments in the city's poorer areas
-9.  **civil servant** （公务员）
+9. **civil servant** （公务员）
 10. states-owned enterprise <--> private enterprise
 11. There was a **depression** in the sand where he'd been lying
 12. **refrained** from **levying** **onerous** texes
 
 ---
 
-## 24.5.1-2
+## 24.5.1 - 3
 
 1. that's a grossly **impertinent** question
 2. He wore an **immaculate** dark blue suit
@@ -211,7 +212,10 @@
 16. think things through
 17. financial **incentives**
 
-## 24.5.2-2
+
+---
+
+## 24.5.2 - 3
 
 1. John had become **infatuated with** the French Teacher
 2. an **oppressive** military regime 
@@ -221,7 +225,7 @@
 6. the **acquisition** of new sites for development
 7. Shares in Chabaidao **plunged** by as much as 38%
    1. Profits **plummeted** from a to b 
-8. Advocates hope this will inject **dynamism** into the American ecocomy and lead to stronger wages; critics warn it will **stifle** investment
+8. Advocates hope this will inject **dynamism** into the American economy and lead to stronger wages; critics warn it will **stifle** investment
 9.  companies become more willing to make **hefty** investments 
 10. those who do take risks often **reap** the rewards 
 11. they thus represent an **impediment** to innovation
@@ -251,7 +255,7 @@
 
 ---
 
-## 24.5.3-2
+## 24.5.3 - 3
 
 1. you hate her **sparkly** outfit, don't you 
 2. his **rugged** good looks
@@ -270,7 +274,7 @@
 13. shoppers will get a temporary **reprieve** from the new sales tax
 14. one of the defining **affliction** of urban life
 15. The nation **lamented** the death of its great war leader
-16. her conerns **resonate** today, as loneliness is considered has **beset** the elderly and yonung alike
+16. her concerns **resonate** today, as loneliness is considered has **beset** the elderly and young alike
 17. he collected storied of individuals who feel **cut off** or **forsake**
 18. An **octogenarian** **languishes** in a retirement home
 19. The author **evokes** the pain of **bereavement**
@@ -294,7 +298,7 @@
 
 ---
 
-## 24.5.4-2
+## 24.5.4 - 3
 
 1. you must admit you do **coddle** her 
 2. **squirrelly** kids
@@ -309,10 +313,10 @@
 11. Ukraine has begun using **vintage propeller** driven planes 
 12. Gill had been out of work for a year and was getting very **despondent**
 13. a **lotion** that **repels** mosquitoes
-14. Drunken football fans **rampaged** throught the streets
+14. Drunken football fans **rampaged** through the streets
 15. under the new **regime**, all sheep and cattle will be regularly tested for disease
 16. a **low-key** military operation 
-17. Sophie has heard it **insofar** as its begin the brithplace of Nicene Creed
+17. Sophie has heard it **insofar** as its begin the birthplace of Nicene Creed
 18. He heard the dog **whimper**
 19. I have no idea what he was **babbling** on about
 20. All of a sudden, a car came **hurtling** round the corner
@@ -329,7 +333,7 @@
 31. Carol **slumped** back in her chair
 32. he **quivered** with excitement
 
-## 24.5.5-2
+## 24.5.5 - 3
 
 1. He could hear the old man **snoring**
 2. He lacks <mark>charisma</mark>
@@ -375,7 +379,7 @@
 
 ---
 
-## 24.5.6 - 2
+## 24.5.6 - 3
 
 1. it's an **obsession** with safety
 2. He **tore** off into town
@@ -478,7 +482,7 @@
 
 ---
 
-## 24.5.8-2
+## 24.5.8 - 3
 
 1. someone's alma mater 
 2. Please give this place a chance, it's a great value
@@ -529,7 +533,7 @@
 
 ---
 
-## 24.5.9 -2
+## 24.5.9 - 3
 
 1. there was a **palpable** sense of relief among the crowd
 2. a job for which artistic **flair** is essential
@@ -610,7 +614,7 @@
 
 ---
 
-## 24.5.10-2
+## 24.5.10 - 3
 
 1. domestic/household appliance
    1. kitchen appliances
@@ -634,7 +638,7 @@
 
 ---
 
-## 24.5.11 - 2
+## 24.5.11 - 3
 
 1. sunroof
 2. this is not the time for moral equivocation
@@ -677,7 +681,7 @@
 
 ---
 
-## 24.5.12-2
+## 24.5.12 - 3
 
 1. I thought the book was pretty **mediocre**
 2. enrolment will take place in september
@@ -705,7 +709,7 @@
 
 ---
 
-## 24.5.13-2
+## 24.5.13 - 3
 
 1. I heard kids are getting **snatched** in mexico
 2. let it scab
@@ -715,7 +719,7 @@
 6. Roger was <mark>astute</mark> enough to come up with a plan
 7. Adelaide **stipulated** that no more children will be born
 
-## 24.5.14-2
+## 24.5.14 - 3
 
 1. someone had stuck posters all over the walls 
    1. stick - stuck - stuck

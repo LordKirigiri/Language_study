@@ -475,7 +475,6 @@
 11. she's always fretting about the children
     1.  worry about something, especially when there's no need
 12. she began again to describe it rapturously
-13. 
 
 
 git mr, cherry-pick, submodule

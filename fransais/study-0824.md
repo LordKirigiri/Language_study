@@ -227,3 +227,28 @@
 1. Il est compréhensible de ressentir de la déception et de la fatigue, surtout lorsque votre travail ne vous apporte pas de satisfaction.
 1. ![B1 09 theme](lesson45-vocabulaire-12.jpg) 
 1. ![B1 09 theme](lesson45-vocabulaire-13.jpg) 
+
+---
+
+## 24.9.4
+
+1. ![B1 09 theme](lesson45-vocabulaire-14.jpg) 
+1. ![B1 09 theme](lesson45-vocabulaire-15.jpg) 
+
+---
+
+## 24.9.5
+
+2. ![B1 09 theme](lesson45-vocabulaire-16.jpg) 
+2. ![B1 09 theme](lesson45-vocabulaire-17.jpg) 
+2. ![B1 09 theme](lesson45-vocabulaire-18.jpg) 
+2. ![B1 09 theme](lesson45-vocabulaire-19.jpg) 
+
+
+---
+
+## 24.9.5
+
+1. ![B1 09 theme](lesson47-vocabulaire-1.jpg) 
+1. ![B1 09 theme](lesson47-vocabulaire-2.jpg) 
+1. ![B1 09 theme](lesson47-vocabulaire-3.jpg) 
