@@ -540,7 +540,7 @@
 
 ---
 
-## 24.6.22
+## 24.6.22 - 1 
 
 1. But this was not quite enough to **sate** their appetites for military adventure
 2. she was fined for speeding
@@ -556,7 +556,6 @@
 12. snuff out the flames of resistance
 13. Edward acted with **clemency** when leading Montfortians approached him begging not to be disinherited
 14. Edward was known to both his supporters and **detractors** not as a lionheart, but as a leopard
-15.
 
 ---
 
@@ -680,7 +679,7 @@
 
 ---
 
-## 24.6.30
+## 24.6.30 - 1
 
 1. Trouble began between English and Norman sailors with a scuffle in Normandy in 1292
 2. Under the threat from Edward I, the King of Scotland backed down, withdrew his protests and renewed his homage
